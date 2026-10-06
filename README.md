@@ -1,1 +1,0 @@
-# eeeaazyyy.github.io
